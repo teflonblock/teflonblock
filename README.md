@@ -1,6 +1,6 @@
 - 👋 Hey you fuckers, it's teflon
-- 👀 I’m interested in ... Python, Visual Basic (Chad Language)
-- 🌱 I’m currently learning ... Python, Visual Basic (Chad Language) 
+- 👀 I’m interested in ... Python, JS
+- 🌱 I’m currently learning ... Python, JS
 - 💞️ I’m looking to collaborate on ... huh?
 - 📫 How to reach me ... GTFO BWAH
 
