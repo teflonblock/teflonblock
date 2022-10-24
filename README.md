@@ -1,6 +1,6 @@
 - 👋 Hey you fuckers, it's teflon
 - 👀 I’m interested in ... Web Development
-- 🌱 I’m currently learning ... JavaScript, SQL
+- 🌱 I’m currently learning ... Visual Basic, JavaScript, 
 - 💞️ I’m looking to collaborate on ... huh?
 - 📫 How to reach me ... GTFO BWAH
 
