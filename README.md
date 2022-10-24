@@ -1,8 +1,8 @@
-- 👋 Hey you fuckers, it's teflon
+- 👋 Hey you fuckers, it's TOP G TEFLON CUH
 - 👀 I’m interested in ... Web Development
-- 🌱 I’m currently learning ... Visual Basic, JavaScript, 
+- 🌱 I’m currently learning ... JavaScript, Python
 - 💞️ I’m looking to collaborate on ... huh?
-- 📫 How to reach me ... GTFO BWAH
+- 📫 How to reach me ... GTFO BWAH I OUTTA WHOOP YO ASS BWAH GET YO ASS OWN MAN WE WUZ KANGZ N SHEIT
 
 <!---
 teflonblock/teflonblock is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
