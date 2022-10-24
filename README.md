@@ -1,6 +1,6 @@
 - 👋 Hey you fuckers, it's TOP G TEFLON CUH
-- 👀 I’m interested in ... Web Development
-- 🌱 I’m currently learning ... JavaScript, Python
+- 👀 I’m interested in ... Visual Basic
+- 🌱 I’m currently learning ... Python, Visual Basic
 - 💞️ I’m looking to collaborate on ... huh?
 - 📫 How to reach me ... GTFO BWAH I OUTTA WHOOP YO ASS BWAH GET YO ASS OWN MAN WE WUZ KANGZ N SHEIT
 
