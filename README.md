@@ -1,6 +1,6 @@
 - 👋 Hey you fuckers, it's The man himself, Joe Biden.
 - 👀 I’m interested in ... nothing
-- 🌱 I’m currently learning ... HTML/CSS/JS, Python
+- 🌱 I’m currently learning ... HTML/CSS/JS, Python, C++
 - 💞️ I’m looking to collaborate on ... huh?
 - 📫 How to reach me ... GTFO BWAH I OUTTA WHOOP YO ASS BWAH GET YO ASS OWN MAN WE WUZ KANGZ N SHEIT
 
