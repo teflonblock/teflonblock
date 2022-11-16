@@ -1,6 +1,6 @@
 - 👋 Hey you fuckers, it's teflon
 - 👀 I’m interested in ... Web Development
-- 🌱 I’m currently learning ... HTML/CSS/JS, Python, C++
+- 🌱 I’m currently learning ... HTML, Python, C++
 - 💞️ I’m looking to collaborate on ... huh?
 - 📫 How to reach me ... GTFO BWAH I OUTTA WHOOP YO ASS BWAH GET YO ASS OWN MAN WE WUZ KANGZ N SHEIT
 
